@@ -1,1 +1,1 @@
-https://timina-makena.github.io/portfolio/
+https://mina-kena.github.io/portfolio/
